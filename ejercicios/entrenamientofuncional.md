@@ -9,3 +9,12 @@ Se realizan en varios pasos que incluyen una sentadilla, una flexión y un salto
 
 
 
+Beneficios del ejercicio:
+
+Mejora la resistencia cardiovascular y muscular. 
+Activa múltiples grupos musculares (piernas, brazos, core y pecho). 
+Aumenta la coordinación y la explosividad. 
+Quema calorías rápidamente. 
+No requiere equipo y se puede hacer en cualquier lugar.
+
+
