@@ -30,3 +30,15 @@ Si no llegas, quédate en el punto donde sientas un buen estiramiento.
 Mantenimiento: Mantén la posición durante 20-30 segundos sin rebotes y respira profundamente. 
 Regreso: Vuelve lentamente a la posición inicial evitando movimientos bruscos. 
 Repetición: Realiza 2 o 3 repeticiones.
+
+
+
+Consejos y precauciones:
+
+No rebotes al estirar, ya que podrías lesionarte. 
+Si sientes demasiada tensión, flexiona ligeramente las rodillas. 
+No fuerces el estiramiento más allá de tu capacidad. 
+Mantén la respiración relajada para ayudar a la elongación muscular. 
+Si tienes problemas en la zona lumbar, haz el ejercicio sentado para reducir el impacto. 
+Este estiramiento es ideal para después del ejercicio o como parte de una rutina de movilidad diaria.
+¡Mejora tu flexibilidad y evita lesiones! 🧘‍♂️✨
