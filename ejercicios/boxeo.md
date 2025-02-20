@@ -23,3 +23,15 @@ Movimiento de pies: Mantén un ligero movimiento, desplazándote de lado a lado 
 Combinaciones de golpes: Lanza jabs, directos, ganchos y uppercuts de forma controlada, imaginando un oponente frente a ti. 
 Defensa: Alterna los golpes con movimientos defensivos como esquivas y bloqueos. 
 Duración: Realiza 3 a 5 rounds de 2-3 minutos cada uno, con descansos de 30 segundos entre ellos.
+
+
+Consejos y precauciones:
+
+Mantén las manos arriba en guardia en todo momento. 
+Evita sobreextender los golpes para prevenir lesiones en los codos y hombros. 
+Usa un espejo para corregir la técnica y mejorar la postura. 
+Respira de manera controlada y acompaña cada golpe con una exhalación corta. 
+Si eres principiante, empieza con combinaciones simples y aumenta la complejidad gradualmente.
+
+El shadow boxing es un ejercicio fundamental en el boxeo, perfecto para mejorar la técnica y el acondicionamiento físico. 
+¡Practícalo y pelea como un profesional! 🥊🔥
