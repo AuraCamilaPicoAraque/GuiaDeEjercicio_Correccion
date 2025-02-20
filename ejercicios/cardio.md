@@ -25,3 +25,12 @@ Posición inicial: Ponte de pie con los pies juntos y los brazos relajados a los
 
 
 
+Consejos y precauciones:
+
+Mantén un ritmo constante y controla la respiración.
+ Asegúrate de aterrizar suavemente con las puntas de los pies para evitar impacto en las rodillas. 
+Si tienes problemas en las articulaciones, reduce la intensidad o prueba una variante de bajo impacto.
+ Realiza un calentamiento previo para evitar lesiones.
+ Si sientes dolor o mareo, detente inmediatamente y descansa.
+
+
