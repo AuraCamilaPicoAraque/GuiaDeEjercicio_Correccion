@@ -27,3 +27,14 @@ Respiración: Inhala por la nariz durante cinco movimientos de brazos y exhala p
 Repetición: Continúa el movimiento hasta completar 100 pulsaciones con los brazos (de ahí su nombre).
 
 
+Consejos y precauciones:
+
+Mantén el abdomen contraído para evitar tensión en la espalda baja.
+ Si eres principiante, puedes flexionar las rodillas en ángulo de 90° para reducir la intensidad. 
+Evita tensar el cuello; mantén la mirada hacia el ombligo. 
+Realiza el ejercicio de manera fluida y sin rigidez en los movimientos. 
+Si sientes dolor en la espalda, baja las piernas o apóyalas en el suelo.
+
+El Cien es un ejercicio fundamental en Pilates, ideal para fortalecer el core y mejorar la resistencia.
+
+¡Pruébalo y siente el poder de tu centro! 💪✨
