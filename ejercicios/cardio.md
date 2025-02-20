@@ -14,3 +14,14 @@ Mejora la resistencia cardiovascular. Aumenta la coordinación y agilidad.
  No requiere equipo y se puede hacer en cualquier lugar.
 
 
+
+Instrucciones de cómo realizarlo:
+
+Posición inicial: Ponte de pie con los pies juntos y los brazos relajados a los lados. Movimiento: Salta separando las piernas mientras levantas los brazos por encima de la cabeza.
+ Regreso: Salta nuevamente para volver a la posición inicial.
+ Repetición:
+ Realiza el movimiento de forma continua durante 30 a 60 segundos o según tu nivel de resistencia.
+
+
+
+
