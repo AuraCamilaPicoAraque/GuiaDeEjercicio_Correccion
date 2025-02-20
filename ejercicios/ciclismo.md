@@ -26,3 +26,14 @@ Recuperación: Reduce la intensidad y pedalea suavemente durante 60-90 segundos.
 Repetición: Alterna entre fase intensa y de recuperación durante 15-30 minutos. 
 Enfriamiento: Finaliza con 5-10 minutos de pedaleo suave para recuperar la frecuencia cardíaca.
 
+
+
+Consejos y precauciones:
+
+Mantén una postura correcta, con la espalda recta y las manos bien posicionadas en el manillar. 
+Controla tu respiración para evitar la fatiga prematura. Hidrátate bien antes, durante y después del ejercicio. 
+Ajusta la resistencia de la bicicleta según tu nivel de entrenamiento. 
+Si eres principiante, empieza con intervalos más cortos y aumenta progresivamente la intensidad.
+
+
+El pedaleo en intervalos es una excelente manera de mejorar tu rendimiento sobre la bicicleta, ya sea en exteriores o en una bicicleta estática. 🚴‍♂️🔥
